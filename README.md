@@ -1,1 +1,1 @@
-# hidup itu indah sebelum metopel menyerang
+Note: Web tidak selesai
